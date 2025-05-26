@@ -17,7 +17,7 @@ Full Featured Bot Updated Script 🤖
 This script is for everyone, not for sale. Jika dijual neraka menunggumu brother !
 
 <p align="center">
-	<img src="https://pin.it/6EI7cAtKG" width="45%" style="margin-left: auto;margin-right: auto;display: block;">
+	<img src="https://pin.it/6EI7cAtKG.jpg" width="45%" style="margin-left: auto;margin-right: auto;display: block;">
 </p>
 <h1 align="center">ᴊɪɴᴡᴏᴏ-ᴍᴅ</h1>
 
